@@ -1,1 +1,1 @@
-dosya actým
+dosya actim
